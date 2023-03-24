@@ -1,0 +1,2 @@
+# HAMASTOREEV1vip
+HamaExpert
